@@ -21,3 +21,13 @@ Is there a relationship between authority and subversiveness in the history of t
 How do official authority, subversion, and and popular opinion shape printing in EM western Europe?
 
 How was the development of censorship institutionalized over time? What role did bureaucracy/govt play in it?
+
+## Argument
+
+Govt assumed authority, people went against
+
+Impact to limit, books had power to subvert
+
+Books were a powerful medium for authority and subversiveness
+
+Despite efforts to censor, subversion did happen because people resisted
