@@ -9,3 +9,11 @@ https://en.wikipedia.org/wiki/Licensing_Order_of_1643#Censorship_during_the_Rest
 https://en.wikipedia.org/wiki/Licensing_of_the_Press_Act_1662
 
 https://en.wikipedia.org/wiki/Statute_of_Anne
+
+# Class Results
+
+To what extent was Government authority and subversiveness important to Reformation in Protestant England?
+How did official authorities impact printing in EM Europe?
+Is there a relationship between authority and subversiveness in the history of the book? What in hob can show an examlple of this? 
+How do official authority, subversion, and and popular opinion shape printing in EM western Europe?
+How was the development of censorship institutionalized over time? What role did bureaucracy/govt play in it?
