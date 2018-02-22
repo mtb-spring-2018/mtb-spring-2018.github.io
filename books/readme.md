@@ -11,7 +11,7 @@
 - A norton critical edition 
 - A print bibliography of works about a common subject or written by a common author
 - A novel with little plot summaries at the start of each chapter
-- A book of poems by a single poet 
+- A book of poems, all of which are written by one poet 
 - A ghostwritten autobiography
 - A novel by a left handed author
 
