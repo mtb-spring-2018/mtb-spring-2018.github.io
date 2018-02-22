@@ -8,11 +8,11 @@
 - A published screenplay
 - A facsimile edition of a literary classic
 - A book published by B.W. Huebsch
-- A norton critical edition 
+- A Norton critical edition 
 - A print bibliography of works about a common subject or written by a common author
 - A novel with little plot summaries at the start of each chapter
 - A book of poems, all of which are written by one poet 
 - A ghostwritten autobiography
 - A novel by a left handed author
 
-Note: You will be receive a 100% on this quiz if you participate fully. If your group is able to find every item, you will receive ten bonus points.  Otherwise, the number of successful finds will not affect your grade.
+Note: You will receive a 100% on this quiz if you participate fully. If your group is able to find every item, you will receive ten bonus points.  Otherwise, the number of successful finds will not affect your grade.
